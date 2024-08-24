@@ -1,0 +1,2 @@
+# ayubiii
+isi otak pemuda
